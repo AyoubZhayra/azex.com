@@ -1,2 +1,0 @@
-# azex.com
-aexxize
